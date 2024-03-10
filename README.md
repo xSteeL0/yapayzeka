@@ -1,1 +1,1 @@
-# yapayzeka
+# fr3zy-ai
